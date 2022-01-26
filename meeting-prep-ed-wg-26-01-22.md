@@ -79,7 +79,7 @@ It would be worth sitting down with Marketing and creating a marketing campaign.
 
 <details>
 
-<summary>Marketing Campaign Details</summary>
+<summary>Marketing Campaign Details (PDF Available On Request)</summary>
 
 *Please bear in mind that marketing campaigns are built to appeal to the public, the masses. Thus, we may consider using platforms that we normally otherwise would not use.*
 
